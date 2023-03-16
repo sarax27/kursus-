@@ -1,0 +1,2 @@
+# kursus-
+kursus for rygere
